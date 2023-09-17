@@ -1,4 +1,4 @@
-# Hello, I'm Rian Souza Santos (rssxda) 👋
+# Hello, I'm Rian (compilewizard) 👋
 
 I'm a litte shy, but this is me:
 
